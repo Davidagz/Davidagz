@@ -1,0 +1,2 @@
+- 👋 Hi, I’m David Alan Garza, Computer Science and Mathematics graduate from the University of Nebraska - Lincoln
+- You can reach me at davidalangarza@gmail.com 
